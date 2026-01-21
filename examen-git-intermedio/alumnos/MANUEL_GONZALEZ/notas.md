@@ -1,0 +1,1 @@
+Sinceramente, no creo que deberias haber cambiado el examen por nuestra ineptitud como estudiantes- a la mierda que somos unos vagos y no hay mas que decir. El formato enseñanza por video esta muy bien pero es que nadie se molestó en verlos por vagueza pura. Sinceramente hibiese preferido comerme el cero antes que hacerte ajustar las cosas a ultima hora pero, bueno, alla tu.
